@@ -1,1 +1,3 @@
-# novora
+# novora babyyyyyyyy
+
+CHINA - DUBAI - ANDORRA
